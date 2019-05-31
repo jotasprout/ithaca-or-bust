@@ -5,7 +5,9 @@ Open Source and Open Data in Ithaca, NY
 https://libguides.ithaca.edu/c.php?g=856355&p=6137109
 
 Jim Bondra
+
 607-274-1962
+
 jbondra@ithaca.edu
 
 The above site includes links to:
